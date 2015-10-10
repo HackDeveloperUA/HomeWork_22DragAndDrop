@@ -11,4 +11,4 @@
 
 Вот такое вот веселое практическое задание :)
 
-![alt tag](https://imgflip.com/gif/scdcu)
+![alt tag]([url=https://imgflip.com/gif/scdcu][img]https://i.imgflip.com/scdcu.gif[/img][/url][url=https://imgflip.com/gifgenerator]via Imgflip GIF Maker[/url])
