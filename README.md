@@ -11,4 +11,4 @@
 
 Вот такое вот веселое практическое задание :)
 
-![alt tag](https://pp.vk.me/c628117/v628117080/5adc/W2HfHxEVad8.jpg)
+![alt tag](https://vk.com/doc201621080_424989726?hash=9bdc6ee03031e71a47&dl=02e984c5c385c1f45d)
